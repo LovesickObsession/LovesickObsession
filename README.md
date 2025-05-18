@@ -20,7 +20,7 @@ called online is "Kylie" !! ^0^
          
  I'm Bisexual and my prnouns are She/Her or They/Them
                   
-            it doesnt matter dw —! ^0^
+ it doesnt matter dw —! ^0^
                            
 I mostly hang out my oomfs and i'm shy to int
                  with others!
