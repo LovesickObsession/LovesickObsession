@@ -25,7 +25,8 @@ called online is "Kylie" !! ^0^
 I mostly hang out my oomfs and i'm shy to int
                  with others!
 
-![Coral_glasses_talk](https://github.com/user-attachments/assets/b0c901af-69b5-4430-9f2a-f017ac430c2f)
+![Coral_glasses_talk](https://github.com/user-attachments/assets/4c120663-a275-4f44-b206-70a7404fbb2e)
+
 
    i think she looks like me, don't you think? 
    ugh i just love her SO MUCH! she's my wife 
