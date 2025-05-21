@@ -1,35 +1,6 @@
+   my beloved male-wife! eeee 🥀🥀🥀🎀
+![Untitled1074_20250521150929](https://github.com/user-attachments/assets/f1768737-7c4a-4b41-83f7-d4557af30770)
 
+![Untitled1074_20250521150934](https://github.com/user-attachments/assets/1e659df5-5bf4-47c5-9bac-01db36e4f6a3)
 
-
- ![TaskiMaidenDance2](https://github.com/user-attachments/assets/2382cdcc-f1cc-4aa7-a483-9703c2f1b06a)
- 
- JUNKO ENOSHIMA AND TASKI MAIDEN IRL!
-             
-I do tease but I'm not crazy! >-<
-and I'm a bit more shy and kinda soft to others
-               
-but still sometimes a bully >›<
-
- 
- ![#Junko #junko_enoshima #danganronpa #pfp…](https://github.com/user-attachments/assets/98a08c1d-e07d-43b9-b059-efc4da6966de)
-
-    
-You can call me Bri/Briel! But i am used to be
-called online is "Kylie" !! ^0^
-       
-         
- I'm Bisexual and my prnouns are She/Her or They/Them
-                  
- it doesnt matter dw —! ^0^
-                           
-I mostly hang out my oomfs and i'm shy to int
-                 with others!
-
-![Coral_glasses_talk](https://github.com/user-attachments/assets/4c120663-a275-4f44-b206-70a7404fbb2e)
-
-
-   i think she looks like me, don't you think? 
-   ugh i just love her SO MUCH! she's my wife 
-   ig.....Oh.. ig im taken by someone else rn.
-     
-
+![Untitled1074_20250521150958](https://github.com/user-attachments/assets/dccccaa9-6f2d-47ff-9ee5-14b204eef2d0)
