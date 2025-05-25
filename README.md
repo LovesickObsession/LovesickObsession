@@ -11,7 +11,7 @@ my hobby is basically gaming or scrolling on my laptop idc
 
 i basically left Danganronpa a long time but the habit is
 just doing character cosplays but the fandom is TOXIC
-(not all amd no offense) that's just my opinion whatever
+(not all and no offense) that's just my opinion whatever
  
  𝙿𝚎𝚛𝚜𝚘𝚗𝚊𝚕𝚒𝚝𝚢! 
  * 𝙸 𝚁𝙴𝙰𝙻𝙻𝚈 𝚝𝚊𝚕𝚔 𝚊𝚋𝚘𝚞𝚝 𝚖𝚢 𝙺𝚒𝚗𝚜 𝚊 𝚕𝚘𝚝
