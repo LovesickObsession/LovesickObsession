@@ -3,7 +3,7 @@
 I'm Bri/Briel, and on the internet they call me Miski/Kylie 
 but any is ok.
 I'm bisexual and yeah i still have depression,suicidal issues
-and some anger issues. If i might leave after a fight w/ you
+and anger issues. If i might leave after a fight w/ you
 it means IM not okay 
 
 sometimes i might lag, or even leave probably because i still sometime
