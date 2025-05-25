@@ -6,12 +6,15 @@
 ![Untitled1074_Restored_20250524232448](https://github.com/user-attachments/assets/ccc31bab-d91e-4dc5-b8bf-7ddbaa8a6d39)
 my hobby is basically gaming or scrolling on my laptop idc
 
- and 𝙸 MOSTLY 𝚑𝚊𝚗𝚐 𝚘𝚞𝚝 𝚒𝚗 𝙳𝚊𝚗𝚐𝚊𝚗𝚛𝚘𝚗𝚙𝚊,Hsr/WuWa,Yttd and with my
+ and I MOSTLY hang out in Danganronpa,Hsr/WuWa,Yttd and with my
  oofms in the JJK area @VEE-V1 Don't drag me
 
 i basically left Danganronpa a long time but the habit is
 just doing character cosplays but the fandom is TOXIC
-(not all and no offense) that's just my opinion whatever
+(not all and no offense) that's just my opinion whatever.
+
+REMINDER: I DON'T ACCEPT FRIENDS FROM RANDOM PEOPLE
+INT ME FIRST. Making a rentry for deeper explaining 
  
  𝙿𝚎𝚛𝚜𝚘𝚗𝚊𝚕𝚒𝚝𝚢! 
  * 𝙸 𝚁𝙴𝙰𝙻𝙻𝚈 𝚝𝚊𝚕𝚔 𝚊𝚋𝚘𝚞𝚝 𝚖𝚢 𝙺𝚒𝚗𝚜 𝚊 𝚕𝚘𝚝
