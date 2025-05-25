@@ -9,6 +9,9 @@ it means IM not okay
 sometimes i might lag, or even leave probably because i still sometime
 vomit and my head is hurting. + Additional i am Delusional.
 
+if I don't know how to reply I just reply with
+emojis sorryyy
+
 ![Untitled1074_Restored_20250524232448](https://github.com/user-attachments/assets/ccc31bab-d91e-4dc5-b8bf-7ddbaa8a6d39)
 my hobby is basically gaming or scrolling on my laptop idc
 
