@@ -1,21 +1,26 @@
-![Untitled1074_Restored_20250524232416](https://github.com/user-attachments/assets/0a90b3a2-eb02-4760-93aa-283e2306cb63)
-
+![Untitled1074_Restored_20250524233316](https://github.com/user-attachments/assets/5df1b78a-b76c-43c7-8759-e7ecff3a0592)
 
 𝚑𝚒𝚒 𝙸'𝚖 𝙱𝚛𝚒/𝙱𝚛𝚒𝚎𝚕 𝚊𝚗𝚍 𝚘𝚗 𝚜𝚘𝚌𝚒𝚊𝚕𝚜 𝚝𝚑𝚎𝚢 𝚌𝚊𝚕𝚕 𝚖𝚎 𝙼𝚒𝚜𝚔𝚒/𝙺𝚢𝚕𝚒𝚎 𝚋𝚞𝚝 𝚊𝚗𝚢 𝚗𝚒𝚌𝚔𝚗𝚊𝚖𝚎 𝚒𝚜 𝚏𝚒𝚗𝚎! ^𝟶^
 𝙸 𝚊𝚖 𝚋𝚒𝚜𝚎𝚡𝚞𝚊𝚕 𝚊𝚗𝚍 𝚖𝚢 𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚜 𝚊𝚛𝚎 𝚜𝚑𝚎/𝚑𝚎𝚛 𝚝𝚑𝚎𝚢/𝚝𝚑𝚎𝚖
 
-𝙸 𝙻𝙾𝚅𝙴 𝙲𝙰𝚃𝚂! 𝚒𝚏 𝚢𝚘𝚞'𝚛𝚎 𝚊 𝚌𝚊𝚝 𝚕𝚘𝚟𝚎𝚛 𝚝𝚘𝚘, 𝚠𝚎 𝚜𝚑𝚘𝚞𝚕𝚍 𝚋𝚎 𝚋𝚎𝚜𝚝𝚒𝚎𝚜! 
- 𝙸 𝚊𝚖 𝚊 𝚋𝚒𝚝 𝚌𝚕𝚒𝚗𝚐𝚢 𝚊𝚗𝚍 𝚜𝚘𝚖𝚎𝚝𝚒𝚖𝚎𝚜 𝚊𝚗𝚗𝚘𝚢𝚒𝚗𝚐, 𝚒𝚏 𝚢𝚘𝚞 𝚑𝚊𝚟𝚎 𝚙𝚛𝚘𝚋𝚕𝚎𝚖𝚜 𝚠𝚒𝚝𝚑 𝚖𝚎, 𝚢𝚘𝚞 𝚌𝚊𝚗
-𝚝𝚊𝚕𝚔 𝚝𝚘 𝚖𝚎 𝚒𝚝'𝚜 𝚏𝚒𝚗𝚎 𝚊𝚗𝚍 𝚒𝚝'𝚜 𝚗𝚘 𝚋𝚒𝚐 𝚍𝚎𝚊𝚕. 
+![Untitled1074_Restored_20250524232448](https://github.com/user-attachments/assets/ccc31bab-d91e-4dc5-b8bf-7ddbaa8a6d39)
+my hobby is basically gaming or scrolling on my laptop idc
 
- 𝙸 𝚑𝚊𝚗𝚐 𝚘𝚞𝚝 𝚒𝚗 𝙳𝚊𝚗𝚐𝚊𝚗𝚛𝚘𝚗𝚙𝚊,Hsr/WuWa,Yttd and
+ and 𝙸 MOSTLY 𝚑𝚊𝚗𝚐 𝚘𝚞𝚝 𝚒𝚗 𝙳𝚊𝚗𝚐𝚊𝚗𝚛𝚘𝚗𝚙𝚊,Hsr/WuWa,Yttd and with my
+ oofms in the JJK area @VEE-V1 Don't drag me
 
+i basically left Danganronpa a long time but the habit is
+just doing character cosplays but the fandom is TOXIC
+(not all amd no offense) that's just my opinion whatever
+ 
  𝙿𝚎𝚛𝚜𝚘𝚗𝚊𝚕𝚒𝚝𝚢! 
  * 𝙸 𝚁𝙴𝙰𝙻𝙻𝚈 𝚝𝚊𝚕𝚔 𝚊𝚋𝚘𝚞𝚝 𝚖𝚢 𝙺𝚒𝚗𝚜 𝚊 𝚕𝚘𝚝
  * 𝚜𝚘𝚖𝚎𝚝𝚒𝚖𝚎𝚜 𝚜𝚑𝚢 𝚝𝚘 𝚒𝚗𝚝! 
  * 𝙸 𝚐𝚎𝚝 𝚞𝚙𝚜𝚎𝚝 𝚏𝚊𝚜𝚝 𝚜𝚘 𝚠𝚊𝚝𝚌𝚑 𝚠𝚒𝚝𝚑 𝚢𝚘𝚞𝚛 𝚠𝚘𝚛𝚍𝚜 𝚙𝚕𝚎𝚊𝚜𝚎! 
  * 𝙸 𝚘𝚏𝚝𝚎𝚗 𝚍𝚘𝚗'𝚝 𝚛𝚎𝚙𝚕𝚢 𝚠𝚑𝚎𝚗 𝙸'𝚖 𝚗𝚘𝚝 𝚘𝚔𝚊𝚢 𝚘𝚛 𝙸 𝚊𝚖 𝚞𝚙𝚜𝚎𝚝 𝚠𝚒𝚝𝚑 𝚢𝚘𝚞! 
-
+ * additional: yeah im kinda rude sometimes don't mind that's
+   just me trust
+ 
  𝙻𝚒𝚔𝚎𝚜✨:
  * 𝙲𝙰𝚃𝚂! 𝚘𝚏𝚌
  * 𝙰𝚛𝚝/𝙳𝚛𝚊𝚠𝚒𝚗𝚐𝚜
