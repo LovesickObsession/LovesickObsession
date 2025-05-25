@@ -1,7 +1,13 @@
 ![Untitled1074_Restored_20250524233316](https://github.com/user-attachments/assets/5df1b78a-b76c-43c7-8759-e7ecff3a0592)
 
-𝚑𝚒𝚒 𝙸'𝚖 𝙱𝚛𝚒/𝙱𝚛𝚒𝚎𝚕 𝚊𝚗𝚍 𝚘𝚗 𝚜𝚘𝚌𝚒𝚊𝚕𝚜 𝚝𝚑𝚎𝚢 𝚌𝚊𝚕𝚕 𝚖𝚎 𝙼𝚒𝚜𝚔𝚒/𝙺𝚢𝚕𝚒𝚎 𝚋𝚞𝚝 𝚊𝚗𝚢 𝚗𝚒𝚌𝚔𝚗𝚊𝚖𝚎 𝚒𝚜 𝚏𝚒𝚗𝚎! ^𝟶^
-𝙸 𝚊𝚖 𝚋𝚒𝚜𝚎𝚡𝚞𝚊𝚕 𝚊𝚗𝚍 𝚖𝚢 𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚜 𝚊𝚛𝚎 𝚜𝚑𝚎/𝚑𝚎𝚛 𝚝𝚑𝚎𝚢/𝚝𝚑𝚎𝚖
+I'm Bri/Briel, and on the internet they call me Miski/Kylie 
+but any is ok.
+I'm bisexual and yeah i still have depression,suicidal issues
+and some anger issues. If i might leave after a fight w/ you
+it means IM not okay 
+
+sometimes i might lag, or even leave probably because i still sometime
+vomit and my head is hurting. + Additional i am Delusional.
 
 ![Untitled1074_Restored_20250524232448](https://github.com/user-attachments/assets/ccc31bab-d91e-4dc5-b8bf-7ddbaa8a6d39)
 my hobby is basically gaming or scrolling on my laptop idc
@@ -44,33 +50,12 @@ INT ME FIRST. Making a rentry for deeper explaining
  * 🌙 𝙰𝚠𝚊𝚢: 𝚄𝚜𝚒𝚗𝚐 𝚊𝚗𝚘𝚝𝚑𝚎𝚛 𝚊𝚙𝚙! 
  * 🗨️ 𝙻𝚘𝚘𝚔𝚒𝚗𝚐 𝚏𝚘𝚛 𝚌𝚑𝚊𝚝: 𝙸 𝚗𝚎𝚎𝚍 𝚜𝚘𝚖𝚎𝚘𝚗𝚎 𝚝𝚘 𝚝𝚊𝚕𝚔 𝚝𝚘! 
  * 🟢 𝙾𝚗𝚕𝚒𝚗𝚎: 𝙳𝚘𝚒𝚗𝚐 𝚗𝚘𝚝𝚑𝚒𝚗𝚐 𝙸 𝚜𝚠𝚎𝚊𝚛
-
-  𝚎𝚎𝚎 𝚖𝚘𝚛𝚎 𝚊𝚋𝚘𝚞𝚝 𝚖𝚎 >-< !! 
- 
-  𝙼𝚢 𝚋𝚒𝚛𝚝𝚑𝚍𝚊𝚢 𝚒𝚜 𝚊𝚝 𝙳𝚎𝚌𝚎𝚖𝚋𝚎𝚛 𝟷𝟹
- 
-  𝚉𝚘𝚍𝚒𝚊𝚌 𝚜𝚒𝚐𝚗 𝚒𝚜 𝙳𝚛𝚊𝚐𝚘𝚗! 
-  
-  𝚖𝚢 𝚐𝚎𝚖𝚜𝚝𝚘𝚗𝚎 Zircon 𝚊𝚗𝚍 𝚒𝚝'𝚜 𝚜𝚘 𝚙𝚛𝚎𝚝𝚝𝚢/𝙿
-  
-  𝙸'𝚖 𝚊 𝚝𝚛𝚊𝚍𝚒𝚝𝚒𝚘𝚗𝚊𝚕 𝚊𝚗𝚍 𝚍𝚒𝚐𝚒𝚝𝚊𝚕 𝚊𝚛𝚝𝚒𝚜𝚝 𝚠𝚠𝚠
-
-  𝚙𝚒𝚊𝚗𝚘 𝚊𝚗𝚍 𝚙𝚕𝚊𝚢𝚒𝚗𝚐 𝚝𝚑𝚎 𝚐𝚞𝚒𝚝𝚊𝚛 𝚒𝚜 𝚖𝚢 𝚑𝚊𝚋𝚒𝚝
-  
- 
   
   !!! 𝙿𝙻𝙴𝙰𝚂𝙴 𝚃𝙰𝙺𝙴 𝙽𝙾𝚃𝙴 𝚃𝙷𝙰𝚃 𝙸 𝙰𝙼 𝙰 𝙼𝙸𝙽𝙾𝚁! 𝙱𝙴𝙻𝙾𝚆 𝟷𝟾. 
 
-𝚜𝚝𝚘𝚙 𝚠𝚑𝚒𝚜𝚙𝚎𝚛𝚒𝚗𝚐 𝚏𝚛𝚎𝚊𝚔𝚢 𝚝𝚑𝚒𝚗𝚐𝚜 𝚊𝚗𝚍 𝚍𝚘𝚒𝚗𝚐 𝚒𝚝 𝚝𝚘 𝚖𝚎 
-𝚠𝚑𝚒𝚕𝚎 𝙸'𝚖 𝙾𝙵𝙵𝚃𝙰𝙱 𝚢𝚔 𝙸 𝚌𝚊𝚗 𝚜𝚝𝚒𝚕𝚕 𝚜𝚎𝚎 𝚢𝚘𝚞 𝚎𝚟𝚎𝚗 𝚒𝚗 𝚘𝚏𝚏𝚝𝚊𝚋, 
+stop whispering and doing freaky ahh stuff people
+while im offtab/afk 
+
+
+  #Stop the fucking harassment people
   
-  𝙸'𝚖 𝚒𝚗 𝚜𝚙𝚎𝚌 𝚖𝚘𝚍𝚎. 
-
-  #stop 𝚝𝚑𝚎 𝚏𝚞𝚌𝚔𝚒𝚗𝚐 𝚑𝚊𝚛𝚛𝚊𝚜𝚖𝚎𝚗𝚝
-
-  
-  𝚝𝚑𝚊𝚗𝚔𝚜 𝚏𝚘𝚛 𝚛𝚎𝚊𝚍𝚒𝚗𝚐! 𝙸 𝚑𝚘𝚙𝚎 𝚠𝚎 𝚐𝚎𝚝 𝚊𝚕𝚘𝚗𝚐!
-   
-
-   𝙿𝚂: 𝚘𝚖𝚐 𝚐𝚞𝚢𝚜 𝚏𝚘𝚕𝚕𝚘𝚠 𝚖𝚎 𝚋𝚊𝚌𝚔 𝚋𝚎𝚌𝚊𝚞𝚜𝚎 𝙸 𝚏𝚘𝚕𝚕𝚘𝚠𝚎𝚍 𝚢𝚘𝚞
-
