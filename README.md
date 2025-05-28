@@ -62,3 +62,4 @@ while im offtab/afk
 
   #Stop the fucking harassment people
   
+![d304cbc4-4e67-4c1b-b45c-a271410c7de5](https://github.com/user-attachments/assets/8b7847ac-7c23-432d-add6-1076206af80e)
