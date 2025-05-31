@@ -22,8 +22,9 @@ i basically left Danganronpa a long time but the habit is
 just doing character cosplays but the fandom is TOXIC
 (not all and no offense) that's just my opinion whatever.
 
-REMINDER: I DON'T ACCEPT FRIENDS FROM RANDOM PEOPLE
-INT ME FIRST. Making a rentry for deeper explaining 
+REMINDER: I DON'T ACCEPT FRIENDS FROM RANDOM PEOPLE AND 
+I DO NOT TALK TO RANDOM PERSONS. DON'T CHAT ME RANDOMLY 
+
  
  𝙿𝚎𝚛𝚜𝚘𝚗𝚊𝚕𝚒𝚝𝚢! 
  * 𝙸 𝚁𝙴𝙰𝙻𝙻𝚈 𝚝𝚊𝚕𝚔 𝚊𝚋𝚘𝚞𝚝 𝚖𝚢 𝙺𝚒𝚗𝚜 𝚊 𝚕𝚘𝚝
