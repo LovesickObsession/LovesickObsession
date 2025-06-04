@@ -23,7 +23,7 @@ just doing character cosplays but the fandom is TOXIC
 (not all and no offense) that's just my opinion whatever.
 
 REMINDER: I DON'T ACCEPT FRIENDS FROM RANDOM PEOPLE AND 
-I DO NOT TALK TO RANDOM PERSONS. DON'T CHAT ME RANDOMLY 
+I DO NOT TALK TO OTHER PEOPLE. DON'T CHAT ME RANDOMLY ! 
 
  
  𝙿𝚎𝚛𝚜𝚘𝚗𝚊𝚕𝚒𝚝𝚢! 
