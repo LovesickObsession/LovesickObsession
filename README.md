@@ -1,4 +1,1 @@
-hi this README.md is still not finished
-come back again....! 
-
-![NicoleAnimePilot](https://github.com/user-attachments/assets/c9955983-4319-4b01-bbfb-9ab887503c6c)
+![Cute Cat GIF - Cute Cat Kitten - Discover   Share GIFs](https://github.com/user-attachments/assets/2c7e6892-fea5-45e4-b4ae-9d481d1d62e3)
