@@ -1,6 +1,8 @@
 ![KAngel-greet2](https://github.com/user-attachments/assets/3064cd9d-b5c4-47ac-bc67-e46e270e85de)
 
 
- be forgiven. "what's that?" are you playing pranks...? 
-  got eaten. eaten by the cruel. it got me fallen into a rabbit's
-    pathway to death. I got killed. killedkiledkilledkilled
+ "𝗣𝗹𝗲𝗮𝘀𝗲 𝗱𝗼𝗻'𝘁 𝗹𝗲𝗮𝘃𝗲. 𝗜 𝗻𝗲𝗲𝗱 𝗬𝗢𝗨 𝗯𝘂𝘁 𝘄𝗵𝘆 𝗱𝗼 𝗜 𝗰𝗮𝗿𝗲? 𝗯𝗲𝗰𝗮𝘂𝘀𝗲 𝗜 𝗱𝗼"
+
+ 𝗖𝗮𝗹𝗹 𝗺𝗲 𝗕𝗿𝗶 𝗼𝗿 𝗔𝗸𝗮𝘆𝘀𝗵𝗮. 𝗕𝘂𝘁 𝗜 𝗽𝗿𝗲𝗳𝗲𝗿 𝘆𝗼𝘂 𝘁𝗼 𝗰𝗮𝗹𝗹 𝗺𝗲 "𝗟𝗼𝘃𝗲𝘀𝗶𝗰𝗸-𝗖𝗵𝗮𝗻"!! 
+ 𝗮𝗻𝘆 𝗻𝗶𝗰𝗸𝗻𝗮𝗺𝗲 𝗶𝘀 𝗳𝗶𝗻𝗲 𝗮𝗻𝗱 𝗜 𝗮𝗺 𝗙𝗲𝗺! 𝗣𝗿𝗻𝗼𝘂𝗻𝘀 𝗮𝗿𝗲 𝗦𝗵𝗲/𝗛𝗲𝗿
+ 𝗜 𝗵𝗮𝘃𝗲 𝘀𝗼𝗺𝗲 𝗺𝗲𝗻𝘁𝗮𝗹 𝗽𝗿𝗼𝗯𝗹𝗲𝗺𝘀! 𝗯𝗲 𝗰𝗮𝘂𝘁𝗶𝗼𝘂𝘀 𝘄𝗶𝘁𝗵 𝘄𝗼𝗿𝗱𝘀! 
