@@ -17,7 +17,7 @@
 
 
 # 
-https://github.com/EndlessSolitudes<--[Furina]
+https://github.com/EndlessSolitudes
 
 (𝗻𝗲𝘄𝗲𝗿 𝗮𝗰𝗰𝗼𝘂𝗻𝘁) 
 
