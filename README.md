@@ -6,10 +6,10 @@
 
 <p/>  
 <p align='center"=>
- <a href="https://github.com/J1GU">𝚃𝚒𝚕𝚕</a>
- <a href="https://github.com/GUlTARIST">𝙼𝚒𝚣𝚒</a>
- <a href="𝚑𝚝𝚝𝚙𝚜://𝚐𝚒𝚝𝚑𝚞𝚋.𝚌𝚘𝚖/𝚠𝚊𝚏𝚏𝚕𝚎𝚝𝚊𝚛𝚝𝚎">𝚂𝚞𝚊</a>
- <a href="https://github.com/LovesickObsession">𝚃𝚒𝚕𝚕</a>
+<a href="https://github.com/J1GU">𝚃𝚒𝚕𝚕</a>
+<a href="https://github.com/GUlTARIST">𝙼𝚒𝚣𝚒</a>
+<a href="𝚑𝚝𝚝𝚙𝚜://𝚐𝚒𝚝𝚑𝚞𝚋.𝚌𝚘𝚖/𝚠𝚊𝚏𝚏𝚕𝚎𝚝𝚊𝚛𝚝𝚎">𝚂𝚞𝚊</a>
+<a href="https://github.com/LovesickObsession">𝚃𝚒𝚕𝚕</a>
  
  
  
