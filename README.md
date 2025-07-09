@@ -2,14 +2,14 @@
 
 <p align='center"=>
    
-   𝚆𝚑𝚊𝚝 𝚒𝚏 𝚢𝚘𝚞 𝚝𝚛𝚢, 𝚋𝚞𝚝 𝚢𝚘𝚞 𝚌𝚊𝚗'𝚝? 
-
+ What if you try, but you can't? 
+ 
 <p/>  
 <p align='center"=>
-<a href="https://github.com/J1GU">𝚃𝚒𝚕𝚕</a>
-<a href="https://github.com/GUlTARIST">𝙼𝚒𝚣𝚒</a>
-<a href="𝚑𝚝𝚝𝚙𝚜://𝚐𝚒𝚝𝚑𝚞𝚋.𝚌𝚘𝚖/𝚠𝚊𝚏𝚏𝚕𝚎𝚝𝚊𝚛𝚝𝚎">𝚂𝚞𝚊</a>
-<a href="https://github.com/LovesickObsession">𝚃𝚒𝚕𝚕</a>
+<a href="https://github.com/J1GU">Till</a>
+<a href="https://github.com/GUlTARIST">Mizi</a>
+<a href="𝚑𝚝𝚝𝚙𝚜://𝚐𝚒𝚝𝚑𝚞𝚋.𝚌𝚘𝚖/𝚠𝚊𝚏𝚏𝚕𝚎𝚝𝚊𝚛𝚝𝚎">Sua</a>
+<a href="https://github.com/LovesickObsession">Ivan</a>
  
  
  
