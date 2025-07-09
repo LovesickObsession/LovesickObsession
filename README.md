@@ -4,8 +4,8 @@
 <p align='center"=>«──────⊹⊱✫⊰⊹──────<p/>
 
 <p align='center">
- Hey there! You! I don't know what to type here tbh, Jokesies! Hi I'm Bri
-ermm always hanging out with that one j1gu skin y'know. I don't know what else to put! I'm bored =.=
+
+ Hey what do I put here this isn't working I tried though:/
 <p/>  
 <p align='center"=>
   <a href="https://github.com/J1GU">Till</a> •
