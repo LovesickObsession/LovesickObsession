@@ -5,6 +5,6 @@
 <p align="center">HOOOOLY SHIT!!!</p>
 <p align="center">
   <a href="https://en.pronouns.page/@LovesickedGirl">PRNOUNS</a> ・
-  <a href="https://lovesicked.atabook.org/">ATA</a> ・
+  <a href="https://lovesicked.atabook.org/">ATA</a> 
 </p>
 
