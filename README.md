@@ -6,5 +6,5 @@
 <p align="center">
   <a href="">Links are still wip</a>
 </p>
-![Char_5_neko_main](https://github.com/user-attachments/assets/4769e306-f754-44ff-b11f-5df2745049ca)
-![Char_8_marisa_main](https://github.com/user-attachments/assets/cec0517e-1443-4653-adeb-1f1903b1f187)
+![Char_8_marisa_main](https://github.com/user-attachments/assets/db0a3246-ae07-4410-99cd-2c1604b60cf3)
+![Char_5_neko_main](https://github.com/user-attachments/assets/d209bbba-8880-445f-85d1-8bc567f6fa25)
