@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/463bf6a0-8585-4d42-9ac7-4b1da5d7eb4f">
+  <img src="https://github.com/user-attachments/assets/e100a784-b17e-4668-a9be-44fcbd1779e6">
 </p>
 <p align="center">«──────⊹⊱✫⊰⊹──────</p>
 <p align="center">Muse dash is so iconic for me</p>
