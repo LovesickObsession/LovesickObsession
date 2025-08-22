@@ -4,6 +4,6 @@
 <p align="center">«──────⊹⊱✫⊰⊹──────</p>
 <p align="center">Was forgiven, but forgotten</p>
 <p align="center">
-  <a href="">A curse</a>
+  <a href="https://github.com/LovesickObsession">A curse</a>
 </p>
 
